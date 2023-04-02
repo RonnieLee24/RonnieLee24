@@ -4,4 +4,7 @@
 
 ## In 2023, let's strive to be better!
 
-![3](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo_Pictures@master/imgs/DB/202303020956029.png)
+![4](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo_Pictures@master/imgs/DB/202304021814804.png)
+
+![QQ图片20230402181611](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo_Pictures@master/imgs/DB/202304021816318.jpg)
+
