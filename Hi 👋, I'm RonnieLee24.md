@@ -4,7 +4,7 @@
 
 ## In 2023, let's strive to be better!
 
-![5](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo_Pictures@master/imgs/DB/202305020848356.png)
+![6](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo_Pictures@master/imgs/DB/202306091816386.png)
 
 
 
