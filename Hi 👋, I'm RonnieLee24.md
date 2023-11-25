@@ -6,6 +6,10 @@
 
 ![11](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo_Pictures@master/imgs/DB/202311111235710.png)
 
+![lolesports和leagueoflegends-photo-Cz01QRBPNqT-1700465577](https://cdn.jsdelivr.net/gh/RonnieLee24/PicGo2@master/img/202311251308085.jpg)
+
+恭喜 Faker ！！！4 冠王！！！👏👏👏
+
 
 
 
